@@ -1,0 +1,1 @@
+# FIT-VUT-1.projekt
